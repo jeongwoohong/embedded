@@ -1,4 +1,5 @@
 #이력서
+!(https://post-phinf.pstatic.net/MjAxOTAxMDhfMTM3/MDAxNTQ2OTUzNzk4ODI1.MZswVvnX_FXL8U-Srxy3LPLrOEWbQG4cuEIIpfrZ-tog.FojuFTZdWsx61EK5CW53znQZx7IoWlJ63pAteEczI14g.JPEG/twice-feature.jpg?type=w1200)
 
 ## 학력란
 ### 중학교
